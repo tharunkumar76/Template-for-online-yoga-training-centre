@@ -1,1 +1,1 @@
-# Template-for-online-yoga-training-centrr
+# Template-for-online-yoga-training-centre
